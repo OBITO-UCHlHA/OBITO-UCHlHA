@@ -1,4 +1,4 @@
-## Hi there 👋
+## 
 
 <!--
 **derealizationnss/derealizationnss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+![Dcoeh7k-54b75797-5aff-4733-ab99-53bcc625f7d8](https://github.com/user-attachments/assets/b39ef01f-f8ad-4475-b6c8-9390c47978b7)
