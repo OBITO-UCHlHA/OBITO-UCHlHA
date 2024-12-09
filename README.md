@@ -23,6 +23,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Naruto⠀⠀,⠀⠀Toilet-Bound Hanako-Kun⠀⠀,⠀⠀Dandadan⠀⠀,⠀⠀Avatar The Last Air  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Bender⠀⠀,⠀⠀The Legend Of Korra⠀⠀,⠀⠀Chainsaw Man⠀⠀,⠀⠀Attack On Titan⠀⠀,⠀⠀The ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ Disastrous Life Of Saiki K⠀⠀,⠀⠀Demon Slayer ![IMG-4904](https://github.com/user-attachments/assets/bc704366-4475-462a-bebb-d29c8cb9d7c0)
 
+![tchqqf](https://github.com/user-attachments/assets/be9ced49-3b43-42f0-ad83-177870709d7f)
 
 ![Untitled300_20241208064717-removebg-preview](https://github.com/user-attachments/assets/6b349f2c-2fbd-4730-97ee-6a7a632f1157) 
 
