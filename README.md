@@ -17,7 +17,7 @@
 ![tchqqf](https://github.com/user-attachments/assets/be9ced49-3b43-42f0-ad83-177870709d7f)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![IMG-2044](https://github.com/user-attachments/assets/259b28e6-d743-4134-a520-6214da683c98)⠀⠀STRICTLY⠀⠀⠀DNI⠀⠀˳⠀◞
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Hazbin Hotel⠀⠀⠀,⠀⠀⠀Helluva Boss⠀⠀⠀,⠀⠀⠀Pixel Drink fans⠀⠀⠀,⠀⠀⠀Toxic BkDk shippers⠀⠀⠀,⠀⠀⠀Proshippers⠀⠀⠀,⠀⠀⠀Racism⠀⠀⠀,⠀⠀![IMG-4904](https://github.com/user-attachments/assets/bc704366-4475-462a-bebb-d29c8cb9d7c0)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Hazbin Hotel⠀⠀⠀,⠀⠀⠀Helluva Boss⠀⠀⠀,⠀⠀⠀Pixel Drink ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀fans⠀⠀⠀,⠀⠀⠀Toxic BkDk shippers⠀⠀⠀,⠀⠀⠀Proshippers⠀⠀⠀,⠀⠀⠀Racism⠀⠀⠀,⠀⠀![IMG-4904](https://github.com/user-attachments/assets/bc704366-4475-462a-bebb-d29c8cb9d7c0)
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀⠀⠀⠀ ⠀
 
