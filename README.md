@@ -9,7 +9,8 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![dhzfy6](https://github.com/user-attachments/assets/5f787861-6f3b-495a-8a9d-c2c051b623ff)⠀◟ rin⠀val⠀law⠀roki⠀◞  ![63efdi](https://github.com/user-attachments/assets/597c62f2-2368-45f9-8d7f-654c4a41e26e)
 
-![tchqqf](https://github.com/user-attachments/assets/be9ced49-3b43-42f0-ad83-177870709d7f)
+![i2ufmz](https://github.com/user-attachments/assets/e027128b-45f6-4341-b552-deff54b96eac)
+
 
 ![IMG-2044](https://github.com/user-attachments/assets/259b28e6-d743-4134-a520-6214da683c98)
  .⠀⠀⠀⠀◜ 𓈒⠀⠀ STRICTLY DNI ⠀⠀⠀◝ ⠀⠀⠀
@@ -40,12 +41,11 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀The disastrous life of saiki k⠀![IMG-4904](https://github.com/user-attachments/assets/bc704366-4475-462a-bebb-d29c8cb9d7c0)⠀˳⠀ ◞ 
 
 
-![tchqqf](https://github.com/user-attachments/assets/be9ced49-3b43-42f0-ad83-177870709d7f)
+![i2ufmz](https://github.com/user-attachments/assets/e027128b-45f6-4341-b552-deff54b96eac)
 
 ![Untitled300_20241208064717-removebg-preview](https://github.com/user-attachments/assets/6b349f2c-2fbd-4730-97ee-6a7a632f1157) 
 
-![tchqqf](https://github.com/user-attachments/assets/be9ced49-3b43-42f0-ad83-177870709d7f)
-
+![i2ufmz](https://github.com/user-attachments/assets/e027128b-45f6-4341-b552-deff54b96eac)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
