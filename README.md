@@ -19,7 +19,8 @@
 
 ⠀⠀⠀⠀⠀⠀⠀![IMG-2044](https://github.com/user-attachments/assets/259b28e6-d743-4134-a520-6214da683c98)⠀⠀ THIN⠀⠀⠀ICE⠀⠀˳⠀◞⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀The Amazing Digital Circus⠀,⠀Sword Art Online⠀,⠀My Hero Academia Fandom⠀,⠀Will add onto more later ! ![IMG-4904](https://github.com/user-attachments/assets/bc704366-4475-462a-bebb-d29c8cb9d7c0)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀The Amazing Digital Circus⠀,⠀Sword Art Online⠀,⠀My Hero Academia Fandom⠀,
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Will add onto more later ! ![IMG-4904](https://github.com/user-attachments/assets/bc704366-4475-462a-bebb-d29c8cb9d7c0)
 
 ⠀⠀⠀⠀⠀⠀⠀![IMG-2044](https://github.com/user-attachments/assets/259b28e6-d743-4134-a520-6214da683c98)⠀⠀ INT⠀⠀˳⠀◞⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
