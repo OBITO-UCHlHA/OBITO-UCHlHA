@@ -11,7 +11,6 @@
 
 ![tchqqf](https://github.com/user-attachments/assets/be9ced49-3b43-42f0-ad83-177870709d7f)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ![IMG-2044](https://github.com/user-attachments/assets/259b28e6-d743-4134-a520-6214da683c98)
  .⠀⠀⠀⠀◜ 𓈒⠀⠀ STRICTLY DNI ⠀⠀⠀◝ ⠀⠀⠀
 
