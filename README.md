@@ -7,7 +7,7 @@
 
 
 
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀   ⠀⠀⠀⠀ ⠀⠀![dhzfy6](https://github.com/user-attachments/assets/5f787861-6f3b-495a-8a9d-c2c051b623ff)⠀⠀⠀◟ ⠀ rin⠀⠀⠀val⠀⠀⠀law⠀⠀⠀roki⠀⠀⠀![63efdi](https://github.com/user-attachments/assets/597c62f2-2368-45f9-8d7f-654c4a41e26e)
+![dhzfy6](https://github.com/user-attachments/assets/5f787861-6f3b-495a-8a9d-c2c051b623ff)⠀⠀⠀◟ ⠀ rin⠀⠀⠀val⠀⠀⠀law⠀⠀⠀roki⠀⠀⠀![63efdi](https://github.com/user-attachments/assets/597c62f2-2368-45f9-8d7f-654c4a41e26e)
 
 ![tchqqf](https://github.com/user-attachments/assets/be9ced49-3b43-42f0-ad83-177870709d7f)
 
