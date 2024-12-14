@@ -41,7 +41,7 @@
 
 ![i2ufmz](https://github.com/user-attachments/assets/e027128b-45f6-4341-b552-deff54b96eac)
 
-![Untitled300_20241208064717-removebg-preview](https://github.com/user-attachments/assets/6b349f2c-2fbd-4730-97ee-6a7a632f1157) 
+<p align="center"> <img src="https://github.com/user-attachments/assets/6b349f2c-2fbd-4730-97ee-6a7a632f1157"
 
 ![i2ufmz](https://github.com/user-attachments/assets/e027128b-45f6-4341-b552-deff54b96eac)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
