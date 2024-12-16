@@ -3,7 +3,7 @@
 <p align="center"> <img src="https://github.com/user-attachments/assets/2c651e0c-9e67-4e17-8f9c-726f734f6e4a"
 
 ![i2ufmz](https://github.com/user-attachments/assets/e027128b-45f6-4341-b552-deff54b96eac)
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𓆩  ♡  11.20.24  ♡  𓆪
+⠀⠀⠀⠀𓆩  ♡  11.20.24  ♡  𓆪
 
 <p align="center"> <img src="https://github.com/user-attachments/assets/4e2f8fda-c125-4030-80e1-72093eebca45"/> 
 
