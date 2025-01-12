@@ -1,5 +1,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀   ⠀ ⠀⠀⠀˚₊‧꒰ა⠀![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=derealizationnss&color=grey&label=✦&style=plastic&base=0)⠀໒꒱ ‧₊˚
 
+<p align="center"> dei was here first ~
 <p align="center"> <img src="https://github.com/user-attachments/assets/2c651e0c-9e67-4e17-8f9c-726f734f6e4a"
 
 ![i2ufmz](https://github.com/user-attachments/assets/e027128b-45f6-4341-b552-deff54b96eac)
