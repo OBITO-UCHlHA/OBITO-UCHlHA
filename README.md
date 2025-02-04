@@ -37,7 +37,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀ Rather you not interact if you like/support the following
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀amazing digital circus, Sword art online (the anime/manga) ⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀My hero academia fandom, Oc x canon shippers,
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀south park, anyone above 18 (unless i know you.)⠀![IMG-4904](https://github.com/user-attachments/assets/bc704366-4475-462a-bebb-d29c8cb9d7c0)⠀˳⠀ ◞ 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀◟⠀⠀south park, selfshippers,⠀![IMG-4904](https://github.com/user-attachments/assets/bc704366-4475-462a-bebb-d29c8cb9d7c0)⠀˳⠀ ◞ 
 
 
 ![IMG-2044](https://github.com/user-attachments/assets/259b28e6-d743-4134-a520-6214da683c98)
