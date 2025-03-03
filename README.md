@@ -5,8 +5,8 @@
 
 ![i2ufmz](https://github.com/user-attachments/assets/e027128b-45f6-4341-b552-deff54b96eac)
 
-<p align="center"> <img src="https://github.com/user-attachments/assets/6b2a30de-0b37-4497-ae1e-96975053f96b"
+<p align="center"> <img src="https://files.catbox.moe/19ziyt.png"/>
 
- ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀gay butt sex gc + kizu
+ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀gay butt sex gc except we lost 2 fuckers
 
 
