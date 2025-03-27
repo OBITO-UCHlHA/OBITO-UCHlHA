@@ -1,6 +1,5 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=obito-uchiiha&color=grey&label=✦&style=plastic&base=4000)⠀
 
-dei was here first ~ sasuke was here.
+
 
 [RENTRY](https://rentry.co/obitouchiha) ᛝ [ATA](https://obito.atabook.org/)
 
@@ -8,3 +7,7 @@ dei was here first ~ sasuke was here.
 
 
 
+
+dei was here first ~ sasuke was here.
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=obito-uchiiha&color=grey&label=✦&style=plastic&base=4000)⠀
