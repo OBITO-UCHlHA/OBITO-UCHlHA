@@ -1,13 +1,10 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀   ⠀ ⠀⠀⠀⠀![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=obito-uchiiha&color=grey&label=✦&style=plastic&base=4000)⠀
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=obito-uchiiha&color=grey&label=✦&style=plastic&base=4000)⠀
 
-<p align="center"> dei was here first ~ sasuke was here.
-<p align="center"> <img src="https://github.com/user-attachments/assets/2cf9119f-9335-47fc-af56-fc9fb5213bb6"
+dei was here first ~ sasuke was here.
 
-![kg15vc](https://github.com/user-attachments/assets/bc5db2a9-94d5-4685-9f98-5ac82f4ef4de)
+[RENTRY](https://rentry.co/obitouchiha) ᛝ [ATA](https://obito.atabook.org/)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zf0mjb7tyswbodc2dxxjnbuol&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<p align="center"> <img src="https://files.catbox.moe/19ziyt.png"/>
-
- ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀gay butt sex gc except sasuke horribly cropped 2 ppl out
 
 
