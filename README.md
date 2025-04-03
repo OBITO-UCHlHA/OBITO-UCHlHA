@@ -12,4 +12,4 @@ dei was here first ~ sasuke was here.
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=obito-uchiiha&color=grey&label=✦&style=plastic&base=4000)⠀
 
-<img src="https://github.com/user-attachments/assets/f695e4b0-83a0-4d61-9b09-62d04e3298be" width="200" height="150">
+<img src="https://github.com/user-attachments/assets/f695e4b0-83a0-4d61-9b09-62d04e3298be" width="250" height="200">
