@@ -19,4 +19,6 @@ dei was here first ~ sasuke was here.
 
 i hate this gc bruh
 
-<img src="https://github.com/user-attachments/assets/ddd21fe8-45d7-423a-b371-e7abfdf21935" width="250" height="350"> <img src="https://github.com/user-attachments/assets/b4eceee9-bc82-496e-840a-730cb113ab3d" width="250" height="350">
+<img src="https://github.com/user-attachments/assets/96d98c57-0bf6-4cce-a18d-4e1ed7c4d6db" width="250" height="350"> <img src="https://github.com/user-attachments/assets/b4eceee9-bc82-496e-840a-730cb113ab3d" width="250" height="350">
+
+
