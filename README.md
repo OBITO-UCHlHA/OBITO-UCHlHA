@@ -1,7 +1,7 @@
 
 
 
-[RENTRY](https://rentry.co/obitouchiha) ᛝ [ATA](https://obito.atabook.org/)
+[RENTRY](https://rentry.co/obitouchiha) ᛝ [ATA](https://obito.atabook.org/) ᛝ [GUNS.LOL](https://guns.lol/derealization)
 
 
 
