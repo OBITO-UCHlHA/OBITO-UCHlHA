@@ -18,5 +18,3 @@ gbs gc image spam
 
 <img src="https://github.com/user-attachments/assets/96d98c57-0bf6-4cce-a18d-4e1ed7c4d6db" width="250" height="350"> <img src="https://github.com/user-attachments/assets/b4eceee9-bc82-496e-840a-730cb113ab3d" width="250" height="350">
 
-
-alts : [sakura](https://github.com/SAKURA-UCHlHA) , [hinata](https://github.com/byakugan-princess) , [madara](https://github.com/ghost-uchiha) , [atom eve](https://github.com/atom-eve) , [vic](https://github.com/hold-on-til-may) , [amane](https://github.com/amane-yugi) , [akane](https://github.com/akane-aoi) , [tbhk](https://github.com/toilet-bound) , [howl](https://github.com/howls-moving-castle) , [mikasa](https://github.com/MlKASA-ACKERMAN) , [sasuke](https://github.com/LAST-UCHlHA) , [izuocha](https://github.com/izuocha)
