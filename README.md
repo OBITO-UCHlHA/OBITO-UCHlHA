@@ -4,7 +4,8 @@
 
 dei was here first ~ sasuke was here.
 
-<p align="center"> <img width="340" src="https://github.com/user-attachments/assets/d1d9f151-0445-46ba-b348-69f4b8a16256"/>
+<p align="center"> <img width="340" height="250" src="https://i.ibb.co/Nnjv7p3W/IMG-0329.jpg"/>
+
 
 [Rentry](https://rentry.co/obitouchiha) ⟡ [Ata](https://obito.atabook.org/) ⟡ [Guns](https://guns.lol/derealization) ⟡ [Straw](https://obiito.straw.page/)
 
