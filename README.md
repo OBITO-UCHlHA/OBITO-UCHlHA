@@ -1,7 +1,8 @@
 <div align="center">
 
 
-![tumblr_inline_mkv9kxHFbl1roozkr540](https://github.com/user-attachments/assets/2b4f20a7-72e5-48b9-8ed7-71c6d5843474) dei was here first ~ sasuke was here. ![tumblr_inline_mkv9b7lxDv1roozkr540](https://github.com/user-attachments/assets/0f41b625-541d-427f-8dd5-2035d4c6a041)
+![tumblr_inline_mkv9chDCal1roozkr540](https://github.com/user-attachments/assets/27c03a9d-442d-4e60-bc9d-05507d238da8)
+ dei was here first ~ sasuke was here. ![tumblr_inline_mkv9b7lxDv1roozkr540](https://github.com/user-attachments/assets/0f41b625-541d-427f-8dd5-2035d4c6a041)
 
 
 Team Minato enthusiast 
