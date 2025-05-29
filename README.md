@@ -11,6 +11,8 @@ Team Minato enthusiast
 <p align="center"> <img width="590" src="https://github.com/user-attachments/assets/b7ff576b-891a-46a6-a5df-cb4984049ff4"/>
 
 
-[Rentry](https://rentry.co/obitouchiha) ⟡ [Ata](https://obito.atabook.org/) ⟡ [Guns](https://guns.lol/derealization) ⟡ [Straw](https://obiito.straw.page/)
+![tumblr_inline_mkv9axWzqr1roozkr540](https://github.com/user-attachments/assets/f110a21c-7f24-4637-a1f1-aa44a717b9f7)
+[Rentry](https://rentry.co/obitouchiha) ⟡ [Ata](https://obito.atabook.org/) ⟡ [Guns](https://guns.lol/derealization) ⟡ [Straw](https://obiito.straw.page/)![tumblr_inline_mkv9atakLG1roozkr540](https://github.com/user-attachments/assets/46286824-fb6e-4131-9f96-819406c03a0a)
+
 
 
