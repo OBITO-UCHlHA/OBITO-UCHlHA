@@ -12,4 +12,6 @@ Team Minato enthusiast. i promise im literally genin obito.
 <p align="center"> <img width="590" src="https://github.com/user-attachments/assets/b7ff576b-891a-46a6-a5df-cb4984049ff4"/>
 
 
-[Rentry](https://rentry.co/obitouchiha)ㅤ🐚ㅤ[Ata](https://obito.atabook.org/)ㅤ🪸ㅤ[Guns](https://guns.lol/derealization)ㅤ🪼ㅤ[Straw](https://obiito.straw.page/)
+[Rentry](https://rentry.co/obitouchiha)ㅤ![3lm1xg](https://github.com/user-attachments/assets/cba018b4-6604-40ae-8466-8359d1c1ad3e)
+ㅤ[Ata](https://obito.atabook.org/)ㅤ![i4mxz5](https://github.com/user-attachments/assets/85e8d8dd-8fa8-4bd3-b4ff-6b4556824e3f)ㅤ[Guns](https://guns.lol/derealization)ㅤ![cbkp83](https://github.com/user-attachments/assets/a00e3396-b1aa-4c3b-b0b8-25956ca1a72c)
+ㅤ[Straw](https://obiito.straw.page/)
