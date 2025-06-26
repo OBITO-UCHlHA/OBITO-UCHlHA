@@ -20,7 +20,6 @@
 ㅤ[Straw](https://obiito.straw.page/)ㅤ![2ab5722d](https://github.com/user-attachments/assets/e1290f9c-811a-402c-8997-2af68731ef94)
 
 ![tumblr_maxlu5IbDc1roozkr540](https://github.com/user-attachments/assets/366869f4-32f4-434b-8c0e-c191e20cc441)![tumblr_maxlv34MPs1roozkr540](https://github.com/user-attachments/assets/af9f9614-be77-427a-b13b-e5f59662667e)
- [Naruto discord server !!](https://discord.gg/Py4p4RvDqH) 
-![tumblr_maxlyhvA381roozkr540 (1)](https://github.com/user-attachments/assets/d246e3bc-a4ca-447e-a16f-d491cf598d1e)![tumblr_maxlziYOy21roozkr540](https://github.com/user-attachments/assets/522f7249-d5e7-440b-bea6-56e26f0d7a93)
+[Naruto discord server !!](https://discord.gg/Py4p4RvDqH) ![tumblr_maxlziYOy21roozkr540](https://github.com/user-attachments/assets/522f7249-d5e7-440b-bea6-56e26f0d7a93)![tumblr_maxlyhvA381roozkr540 (1)](https://github.com/user-attachments/assets/d246e3bc-a4ca-447e-a16f-d491cf598d1e)
 
 
