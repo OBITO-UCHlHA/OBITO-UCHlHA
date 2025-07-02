@@ -15,11 +15,11 @@
 
 
 ![2ab5722d](https://github.com/user-attachments/assets/991a5045-d94c-410d-a5b7-73ce17791507)ㅤ
-[Rentry](https://rentry.co/obitouchiha)ㅤ![3lm1xg](https://github.com/user-attachments/assets/cba018b4-6604-40ae-8466-8359d1c1ad3e)
-ㅤ[Ata](https://obito.atabook.org/)ㅤ![i4mxz5](https://github.com/user-attachments/assets/85e8d8dd-8fa8-4bd3-b4ff-6b4556824e3f)ㅤ[Guns](https://guns.lol/derealization)ㅤ![cbkp83](https://github.com/user-attachments/assets/a00e3396-b1aa-4c3b-b0b8-25956ca1a72c)
-ㅤ[Straw](https://obiito.straw.page/)ㅤ![2ab5722d](https://github.com/user-attachments/assets/e1290f9c-811a-402c-8997-2af68731ef94)
+[RENTRY](https://rentry.co/obitouchiha)ㅤ![3lm1xg](https://github.com/user-attachments/assets/cba018b4-6604-40ae-8466-8359d1c1ad3e)
+ㅤ[ATA](https://obito.atabook.org/)ㅤ![i4mxz5](https://github.com/user-attachments/assets/85e8d8dd-8fa8-4bd3-b4ff-6b4556824e3f)ㅤ[GUNS.LOL](https://guns.lol/derealization)ㅤ![cbkp83](https://github.com/user-attachments/assets/a00e3396-b1aa-4c3b-b0b8-25956ca1a72c)
+ㅤ[STRAW](https://obiito.straw.page/)ㅤ![2ab5722d](https://github.com/user-attachments/assets/e1290f9c-811a-402c-8997-2af68731ef94)
 
 ![tumblr_maxlu5IbDc1roozkr540](https://github.com/user-attachments/assets/366869f4-32f4-434b-8c0e-c191e20cc441)![tumblr_maxlv34MPs1roozkr540](https://github.com/user-attachments/assets/af9f9614-be77-427a-b13b-e5f59662667e)
-[Naruto discord server !!](https://discord.gg/Py4p4RvDqH) ![tumblr_maxlziYOy21roozkr540](https://github.com/user-attachments/assets/522f7249-d5e7-440b-bea6-56e26f0d7a93)![tumblr_maxlyhvA381roozkr540 (1)](https://github.com/user-attachments/assets/d246e3bc-a4ca-447e-a16f-d491cf598d1e)
+[NARUTO DISC SERV !!](https://discord.gg/Py4p4RvDqH) ![tumblr_maxlziYOy21roozkr540](https://github.com/user-attachments/assets/522f7249-d5e7-440b-bea6-56e26f0d7a93)![tumblr_maxlyhvA381roozkr540 (1)](https://github.com/user-attachments/assets/d246e3bc-a4ca-447e-a16f-d491cf598d1e)
 
 
