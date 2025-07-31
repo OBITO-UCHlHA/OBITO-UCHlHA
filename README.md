@@ -8,7 +8,7 @@
 
 
 
-[RENTRY](https://rentry.co/obitouchiha)ㅤ⟡
+[RENTRY](https://rentry.co/obitouchiha)ㅤ<img width="40" src="https://github.com/user-attachments/assets/1fc41bb6-2b5c-47c0-8906-59952d663837"/>
 ㅤ[ATA](https://obito.atabook.org/)ㅤ
 
 ![tumblr_maxlu5IbDc1roozkr540](https://github.com/user-attachments/assets/366869f4-32f4-434b-8c0e-c191e20cc441)![tumblr_maxlv34MPs1roozkr540](https://github.com/user-attachments/assets/af9f9614-be77-427a-b13b-e5f59662667e)
