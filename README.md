@@ -8,7 +8,7 @@
 
 
 
-[RENTRY](https://rentry.co/obitouchiha)⠀⠀⠀⠀⠀<img width="100" src="https://github.com/user-attachments/assets/cd481a7b-52da-4049-b2fb-c9a6111b23e"/>
+[RENTRY](https://rentry.co/obitouchiha)⠀⠀⠀⠀⠀![tumblr_inline_mkv9d8g4aY1roozkr540](https://github.com/user-attachments/assets/5b1b9a9f-d6d0-4d5c-964d-f164017f2d07)
 ⠀⠀⠀⠀⠀[ATA](https://obito.atabook.org/)ㅤ
 
 ![tumblr_maxlu5IbDc1roozkr540](https://github.com/user-attachments/assets/366869f4-32f4-434b-8c0e-c191e20cc441)![tumblr_maxlv34MPs1roozkr540](https://github.com/user-attachments/assets/af9f9614-be77-427a-b13b-e5f59662667e)
@@ -16,4 +16,3 @@
 
 
 
-![tumblr_inline_mkv9d8g4aY1roozkr540](https://github.com/user-attachments/assets/cd481a7b-52da-4049-b2fb-c9a6111b23ee)
