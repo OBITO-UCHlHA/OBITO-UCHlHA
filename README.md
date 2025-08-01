@@ -11,11 +11,7 @@
 
 
 
-[RENTRY](https://rentry.co/obitouchiha)⠀⠀⠀⠀⠀![69368fcc](https://github.com/user-attachments/assets/1f9cb380-1666-400c-bbdd-5a693d7a43a0)
-⠀⠀⠀⠀⠀[ATA](https://obito.atabook.org/)ㅤ
+<a href="https://rentry.co/obitouchiha">![image](https://github.com/user-attachments/assets/2cdd8983-49db-4bb9-a71f-5713df7945c4)⠀⠀⠀⠀⠀⠀<a href="https://obito.atabook.org/">![image](https://github.com/user-attachments/assets/26d6aaf7-ed11-4025-9591-9b65d6706d31)⠀
 
-
-
-[NARUTO DISC SERV !!](https://discord.gg/Py4p4RvDqH) 
 
 
