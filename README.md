@@ -8,11 +8,11 @@
 
 
 
-[RENTRY](https://rentry.co/obitouchiha)⠀⠀⠀⠀⠀![tumblr_inline_mkv9d8g4aY1roozkr540](https://github.com/user-attachments/assets/5b1b9a9f-d6d0-4d5c-964d-f164017f2d07)
+[RENTRY](https://rentry.co/obitouchiha)⠀⠀⠀⠀⠀![tumblr_inline_mkv9ibyPZX1roozkr540](https://github.com/user-attachments/assets/12b3d462-7a97-4a94-addf-bf73eab72996)
 ⠀⠀⠀⠀⠀[ATA](https://obito.atabook.org/)ㅤ
 
-![tumblr_maxlu5IbDc1roozkr540](https://github.com/user-attachments/assets/366869f4-32f4-434b-8c0e-c191e20cc441)![tumblr_maxlv34MPs1roozkr540](https://github.com/user-attachments/assets/af9f9614-be77-427a-b13b-e5f59662667e)
-[NARUTO DISC SERV !!](https://discord.gg/Py4p4RvDqH) ![tumblr_maxlziYOy21roozkr540](https://github.com/user-attachments/assets/522f7249-d5e7-440b-bea6-56e26f0d7a93)![tumblr_maxlyhvA381roozkr540 (1)](https://github.com/user-attachments/assets/d246e3bc-a4ca-447e-a16f-d491cf598d1e)
+
+[NARUTO DISC SERV !!](https://discord.gg/Py4p4RvDqH) 
 
 
 
