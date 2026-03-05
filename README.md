@@ -4,13 +4,16 @@
 <div align="center">
 
 
-![](https://komarev.com/ghpvc/?username=OBITO-UCHlHA&color=745075&label=🍥&style=plastic)
+![](https://komarev.com/ghpvc/?username=OBITO-UCHlHA&color=c67188&label=✧&style=plastic)
 
 
-<p align="center"> <img width="410" src="https://github.com/user-attachments/assets/a50f4da0-c364-49d3-a9b0-13225301abbb"/>
+<p align="center"> <img width="470" src="https://i.ibb.co/YBz13LP3/Untitled717-20260305123958.png"/>
 
 
 
 
 
-[![Example GIF](https://github.com/user-attachments/assets/2cdd8983-49db-4bb9-a71f-5713df7945c4)](https://rentry.co/obitouchiha) ⠀⠀⠀⠀⠀⠀ ⠀⠀[![Example GIF](https://github.com/user-attachments/assets/26d6aaf7-ed11-4025-9591-9b65d6706d31)](https://obito.atabook.org/)
+[![Example GIF](https://i.ibb.co/5NB5d93/Untitled725-20260305055950-1.png)](https://rentry.co/obitouchiha) ⠀⠀⠀⠀⠀⠀ ⠀⠀[![Example GIF](https://i.ibb.co/7ttGhMC6/Untitled727-20260305135723.png)](https://obito.atabook.org/)
+
+
+
