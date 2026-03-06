@@ -7,7 +7,7 @@
 ![](https://komarev.com/ghpvc/?username=OBITO-UCHlHA&color=c67188&label=✧&style=plastic)
 
 
-<p align="center"> <img width="470" src="https://i.ibb.co/YBz13LP3/Untitled717-20260305123958.png"/>
+<p align="center"> <img width="500" src="https://i.ibb.co/6M1Y2rx/Untitled717-20260305180147.png"/>
 
 
 
